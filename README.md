@@ -15,3 +15,4 @@
 </p>
 ㅤ
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-05-23_053447333.png" /></div>
+<div align="center"> can we call salted and zeer "zerosalt" i think it's cute </div>
