@@ -1,6 +1,6 @@
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-05-23_055921640.png" /></div>
 <p align="center"> ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯ㅤㅤㅤㅤ
-ㅤ
+
 <p align="center">
  <a href= "https://rentry.co/heyzeer0">rentry</a>ㅤㅤㅤㅤ ㅤㅤ<a href= "https://rentry.co/craftedmovie">matching</a>ㅤㅤㅤㅤ ㅤㅤ<a href= "https://pronouns.cc/@toodrew">prns.c</a>ㅤㅤㅤㅤ ㅤㅤ<a href= "https://github.com/Iove-birds">main</a> 
 </p>
